@@ -1,6 +1,0 @@
-gs
-sdgs
-sdg
-sdg
-	
-
